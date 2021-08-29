@@ -1,2 +1,2 @@
-# Avenida-Palm-Desert-Template1
-1 notice template
+# Avenida Palm Desert Events
+Professional Referral Program
